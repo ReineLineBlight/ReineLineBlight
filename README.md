@@ -1,0 +1,30 @@
+- Hi, I’m @ReineLineBlight
+- I’m interested in Creating Games For VR and PC where a i can play someone like me
+- I’m currently learning Java and python
+- French is my native language so Talk to me in FR or don't talk even if i speak English, Spanish, Russian, Japanese and Corse
+- If you want to talk don't talk to me i hate to talk
+- But you can Go and Follow and Sub T3 on Wankil Studio on Twitch Kappa
+- Don't i'm joking but i mean you can if you want but it's only in French
+- In Reality i just Want to make this long for Nothing
+- Did Someone now how to find VR hentai with Astolfo ?
+- I Have a big crush on Astolfo-Sama UwU
+- I kinda Like the cartoon named The Owl House
+- I Like the ship Luz x Amity it's so cute
+- Still thinking that the ship Boscha x Willow is good
+- I think Boscha can change and need help fot that she suffer more than we think
+- Why dev don't add Streamer Button on every game they make now ?
+- I mean a Streamer Buuton for blocking DMCA Music can help and Streamer are the best ways to make some ads for your game
+- I want to be a cute anime girl but i'm was born has a boy i hate that
+- I can't wait to become a Woman on full time it's my dream
+- My Favorite Pokemon is Umbreon
+- I Hate all the 4G of Pokemon it's the worst even Worst than Sun and Moon
+- And Legend of Arceus is so ugly but it's pokemon i'm gonna buy it and do shiny hunting cause it's pokemon
+- I hope Palworld is gonna be good cause i want a Pokemon in a realistic world where you can use them to make money
+- The only thing i din't like with Palworld is that you can't make horny thing with your pokemon or make them do money with thing like this
+- I'm a Furry
+- I'm Know Thornwarg and play at Valorant with him
+- You don't know who is Thornwarg ?
+- You will know him when he gonna be the number one on Twitch and Youtube even PewDiePie can't beat him
+- I'm from Royal Blood a real Queen even if your Kingdom don't exist anymore since ~400 Years 
+- But I'm The QUEEN (not the guys who make music)
+- End. <3
